@@ -1,1 +1,1 @@
-# Green-Energy-Generator-from-Household-Waste
+Green Energy Generator from Household Waste
